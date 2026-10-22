@@ -1,3 +1,4 @@
+<a href="https://docs.google.com/document/d/1hnOkmHhjfuCVeLvNkKqgbGepmpdALjgYp-2wXo4EgxM/edit?usp=drivesdk">Read Nan ' s callout doc.</a> ( my part ' s there too )
 <img width="2500" height="2500" alt="5378" src="https://github.com/user-attachments/assets/232eb717-51bd-4f63-a703-0414f4580e15" />
 
 
