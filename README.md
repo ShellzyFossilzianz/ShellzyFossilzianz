@@ -6,3 +6,7 @@
 <details><summary>$\color{red}\textsf{ New Fossils}$</summary><a href="https://github.com/OCEANSLEEPblue">Spawnerzz</a> , <a href="https://github.com/Darkwoza">Kyle / My child</a> , <a href="https://github.com/c-utesy">Nyan</a> , <a href="https://github.com/Midnightstati">Appul</a> ,  <a href="https://github.com/OlgaSinxer">Sinx</a> , <a href="https://github.com/6ickbvy">Maple</a> , <a href="https://github.com/chanceforgotdebtt">Elifi</a> , <a href="https://github.com/kittydummy">Evan</a> <a href="https://github.com/casino-flush">Arle</a> , <a href="https://github.com/oakwoodn">Max</a> , <a href="https://github.com/TOXIC-LIPSTICK">Rosie</a> , <a href="https://github.com/cOOlerkidd-darkvints">Vint</a> , <a href="https://github.com/M17UN4C4P70R">Vanyusha</a>, </details>
 <details><summary>$\color{red}\textsf{ ART}$</summary><img width="2500" height="2500" alt="1001502324" src="https://github.com/user-attachments/assets/d66d7f2f-589a-42b2-bb00-6eeaf074d194" /> this was made for <a href="https://github.com/purzuer">Purz</a>
 </details>
+<details><summary>$\color{red}\textsf{ bday arts !}$</summary> <img width="3375" height="4092" alt="5462" src="https://github.com/user-attachments/assets/62ab2026-275e-4041-82bb-0a16e9e4c7b2" /> OCT 31ST ! : HAPPY BDAY <a href="https://github.com/purzuer">Purz</a> AND HAPPY HALLOWEEN 
+
+</details>
+
